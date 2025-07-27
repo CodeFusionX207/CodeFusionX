@@ -62,7 +62,7 @@ Purchase your **CodeFusionX** Premium Stack today and start building next-level 
 ## 📞 Contact & Support
 
 For questions, support, or custom enterprise licensing, reach out to:  
-✉️ your.email@example.com
+✉️ ontoloji0156@gmail.com
 
 ---
 
